@@ -1,0 +1,1 @@
+Document daily progress
